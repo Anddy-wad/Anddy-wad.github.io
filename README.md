@@ -1,1 +1,0 @@
-# Anddy-wad.github.io
